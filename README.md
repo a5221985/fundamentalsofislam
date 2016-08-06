@@ -1,2 +1,2 @@
 # fundamentalsofislam
-The website is intended for documenting and referring to the fundamental concepts of Islam according to what ALLAH subhanahu wa ta'la says in the Qur'an and the most authentically documented sunnah of the Prophet (PBUH)
+The website is intended for documenting and referring to the fundamental concepts of the religion of truth according to what the CREATOR says in scripture and the most authentically documented ways of the messenger(s) put.
